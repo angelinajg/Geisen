@@ -1,2 +1,3 @@
 # Geisen
-a repository of my own, wowwwie ʕ•ᴥ•ʔ
+a repository of my own, wowie! ʕ•ᴥ•ʔ
+\ (•◡•) /
