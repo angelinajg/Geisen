@@ -1,2 +1,2 @@
 # Geisen
-a depository of my own, wowie.
+a repository of my own, wowwwie ʕ•ᴥ•ʔ
